@@ -1,4 +1,4 @@
-# 
+# quantitative nft trading bot | price-impact-analysis + proxy-transactions is the best nft trading bot, featuring price-impact-analysis and proxy-transactions. Fast, smart, and
 
 
 
